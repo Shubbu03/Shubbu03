@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1OtDKNtMqwSpgEAe933jvhmN7nw8nMw_0/view](https://drive.google.com/file/d/1OtDKNtMqwSpgEAe933jvhmN7nw8nMw_0/view)
 
-- ⚡ Fun fact **I've almost caught up One Piece**
+- ⚡ Fun fact **I've caught up One Piece**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
