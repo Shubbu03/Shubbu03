@@ -7,8 +7,6 @@
 
 - 📫 How to reach me **thatcoderguyshubham@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1OtDKNtMqwSpgEAe933jvhmN7nw8nMw_0/view](https://drive.google.com/file/d/1OtDKNtMqwSpgEAe933jvhmN7nw8nMw_0/view)
-
 - ⚡ Fun fact **I've caught up One Piece**
 
 <h3 align="left">Connect with me:</h3>
