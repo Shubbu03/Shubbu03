@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Shubham Sharma</h1>
+<h1 align="center">Hi 👋, I'm Shubham</h1>
 <h3 align="center">A passionate Web3 developer from India</h3>
 
 - 🌱 I’m currently learning **Web3 , Solidity , Solana , Rust**
