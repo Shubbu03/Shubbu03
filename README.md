@@ -1,4 +1,3 @@
-23, engg.
-i like web dev, blockchains, SOL, anime
+i like solana, web dev, anime
 </br>
 ✌️peace
